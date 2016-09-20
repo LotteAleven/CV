@@ -1,6 +1,4 @@
-# CV
-
-Curriculum Vitae
+# Curriculum Vitae
 =================
 
 Persoonlijke informatie
