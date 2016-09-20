@@ -11,6 +11,7 @@ LinkedIn: 	    nl.linkedin.com/in/lottealeven/en
 Geboortedatum:	9 juni 1995
 
 Profiel
+
 Ik heb de ambitie om in een consultancy functie te werken voor een financiële dienstverlener, waarbij ik kwaliteit en integriteit belangrijk vind. Ik ben analytisch, zelfstandig en nieuwsgierig, en mijn carrière interesses zijn economisch en financieel gerelateerd. 
 
 Educatie
