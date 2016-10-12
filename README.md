@@ -65,4 +65,4 @@ Duits basisvaardigheden.
 
 Interesses
 ---
-In mijn vrijetijd houd ik me graag bezig met wielrennen en zeilen. Daarnaast heb ik een aantal jaar aan topsport dammen gedaan als Nationaal Talent bij de NOC*NSF, met verschillende successen op Nationaal en Europees niveau. 
+In mijn vrije tijd houd ik me graag bezig met wielrennen en zeilen. Daarnaast heb ik een aantal jaar aan topsport dammen gedaan als Nationaal Talent bij de NOC*NSF, met verschillende successen op nationaal en Europees niveau. 
